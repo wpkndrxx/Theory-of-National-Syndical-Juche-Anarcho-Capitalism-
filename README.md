@@ -1,0 +1,2 @@
+I spent the last few day writing a short theoretical essay exploring whether three seemingly incompatible ideologies (Juche, National Syndicalism and Anarcho-Capitalism) could be combined into a single internally consistent hypothetical model. This is purely a thought experiment, not political advocacy. I'd be interested in constructive criticism and discussion.
+Here i uploaded both versions, one in Czech (original) and one in English (translated via xAI-Grok).
